@@ -1,4 +1,4 @@
-Ingeniero de sistemas apasionado por el mundo de la programación, especialista desarrollo de software y gerencia de proyectos y con disposición para el aprendizaje
+Ingeniero de sistemas apasionado por el mundo de la programación, especialista desarrollo de software y gerencia de proyectos, con disposición para el aprendizaje
 continuo, gran sentido de pertenencia, trabajo en equipo, alta capacidad para alcanzar
 los objetivos propuestos, práctico, proactivo y emprendedor, con un alto grado de
 tolerancia al trabajo bajo presión y apasionado por la superación personal y profesional;
